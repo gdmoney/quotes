@@ -1,5 +1,5 @@
 **"Anyone can steer the ship when the sea is calm."**
-- *Publilius Syrus*
+-- *Publilius Syrus*
 
 
 **"Nothing satisfies the man who is not satisfied with a little."**
