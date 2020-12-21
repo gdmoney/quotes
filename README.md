@@ -153,7 +153,7 @@
 -- *Robert A. Crawford (quoted by)*
 
 
-**"Fools ignore complexity." Pragmatists suffer it. Some can avoid it." Geniuses remove it."**  
+**"Fools ignore complexity. Pragmatists suffer it. Some can avoid it. Geniuses remove it."**  
 -- *Alan Perlis*
 
 
