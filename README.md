@@ -118,7 +118,7 @@
 
 **"All cruelty springs from weakness."**  
 
-**L"uck is what happens when preparation meets opportunity."**  
+**"Luck is what happens when preparation meets opportunity."**  
 
 **"There is nothing the busy man is less busied with than living."**  
 - *Seneca*
