@@ -169,5 +169,5 @@
 -- *Gordon Bell*
 
 
-**"Fast, Cheap, Good - pick any two.""**  
--- *Unknown
+**"Fast, Cheap, Good - pick any two."**  
+-- *Unknown*
