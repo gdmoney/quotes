@@ -86,18 +86,18 @@
 ***"Nothing in the world is worth having or worth doing unless it means effort, pain, difficulty… I have never in my life envied a human being who led an easy life. I have envied a great many people who led difficult lives and led them well."***
  - Theodore Roosevelt
 
-***All cruelty springs from weakness.***
-***"Luck is what happens when preparation meets opportunity."***
-***"There is nothing the busy man is less busied with than living."***
+***All cruelty springs from weakness.***  
+***"Luck is what happens when preparation meets opportunity."***  
+***"There is nothing the busy man is less busied with than living."***  
  - Seneca
 
 ***"It is not the strongest of the species that survives, nor the most intelligent, but the one most responsive to change."***
  - Charles Darwin
 
-***"It took me time to adjust, but I came to realize that my new job was to ask the right questions that empowered our leaders to move forward with greater clarity about the "outcome" we sought. Said more succinctly, be clear about the 'what' and delegate the 'how'."***
-***"Business is about translating vision and strategy into execution."***
-***"Life is a team sport, and a player who makes the team great is far more valuable than simply a great player."***
-***"If you want to go fast - go alone, if you want to go far - go together."***
+***"It took me time to adjust, but I came to realize that my new job was to ask the right questions that empowered our leaders to move forward with greater clarity about the "outcome" we sought. Said more succinctly, be clear about the 'what' and delegate the 'how'."***  
+***"Business is about translating vision and strategy into execution."***  
+***"Life is a team sport, and a player who makes the team great is far more valuable than simply a great player."***  
+***"If you want to go fast - go alone, if you want to go far - go together."***  
  - Brad Smith
 
 ***"Your business is nothing more than the collective energy and efforts of the people working with and for you."***
@@ -115,9 +115,9 @@
 ***"Fools ignore complexity. Pragmatists suffer it. Some can avoid it. Geniuses remove it."***
  - Alan Perlis
 
-***"It is not enough to do your best; you must know what to do, and then do your best."***
-***"Learning is not compulsory... neither is survival."***
-***"Experience by itself teaches nothing…Without theory, experience has no meaning. Without theory, one has no questions to ask. Hence without theory there is no learning."***
+***"It is not enough to do your best; you must know what to do, and then do your best."***  
+***"Learning is not compulsory... neither is survival."***  
+***"Experience by itself teaches nothing…Without theory, experience has no meaning. Without theory, one has no questions to ask. Hence without theory there is no learning."***  
  - W. Edwards Deming
 
 ***"The most reliable components are the ones you leave out."***
