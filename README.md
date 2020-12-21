@@ -1,9 +1,9 @@
-***"Anyone can steer the ship when the sea is calm."***
-- Publilius Syrus
+**"Anyone can steer the ship when the sea is calm."**
+- *Publilius Syrus*
 
 
-***"Nothing satisfies the man who is not satisfied with a little."***
-- Epicurus
+**"Nothing satisfies the man who is not satisfied with a little."**
+- *Epicurus*
 
 
 ***"Difficulty is a coin which the learned conjure with so as not to reveal the vanity of their studies and which human stupidity is keen to accept in payment."***
