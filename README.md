@@ -68,7 +68,7 @@
 
 
 **"Be gentle to all, and stern with yourself."**  
--- *St." Teresa of Avila*
+-- *St. Teresa of Avila*
 
 
 **"The way we do anything is the way we do everything."**  
