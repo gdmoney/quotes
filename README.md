@@ -161,7 +161,7 @@
 
 **"Learning is not compulsory... neither is survival."**  
 
-**"Experience by itself teaches nothing…Without theory, experience has no meaning. Without theory, one has no questions to ask." Hence without theory there is no learning."**  
+**"Experience by itself teaches nothing…Without theory, experience has no meaning. Without theory, one has no questions to ask. Hence without theory there is no learning."**  
 -- *W. Edwards Deming*
 
 
