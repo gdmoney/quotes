@@ -151,7 +151,7 @@
 
 
 **"Deliberate complexity is the mark of an amateur. Elegant simplicity is the mark of a master."**
-- *Robert A." Crawford (quoted by)*
+- *Robert A. Crawford (quoted by)*
 
 
 **"Fools ignore complexity." Pragmatists suffer it. Some can avoid it." Geniuses remove it."**
@@ -160,7 +160,7 @@
 
 **"It is not enough to do your best; you must know what to do, and then do your best."**  
 
-**"Learning is not compulsory."."." neither is survival."**  
+**"Learning is not compulsory... neither is survival."**  
 
 **"Experience by itself teaches nothing…Without theory, experience has no meaning. Without theory, one has no questions to ask." Hence without theory there is no learning."**  
 - *W. Edwards Deming*
@@ -170,6 +170,5 @@
 - *Gordon Bell*
 
 
-**"Fast, Cheap, Good - *pick any two.""** 
+**"Fast, Cheap, Good - pick any two.""** 
 - *Unknown
-*
