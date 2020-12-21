@@ -23,8 +23,6 @@
 
 
 **"The impediment to action advances action. What stands in the way becomes the way."**  
-
-
 **"Choose not to be harmed - and you won't feel harmed. Don't feel harmed - and you haven't been."**  
 -- *Marcus Aurelius*
 
@@ -116,9 +114,7 @@
 
 
 **"All cruelty springs from weakness."**    
-
 **"Luck is what happens when preparation meets opportunity."**  
-
 **"There is nothing the busy man is less busied with than living."**  
 -- *Seneca*
 
@@ -128,11 +124,8 @@
 
 
 **"It took me time to adjust, but I came to realize that my new job was to ask the right questions that empowered our leaders to move forward with greater clarity about the outcome we sought. Said more succinctly, be clear about the 'what' and delegate the 'how'."**  
-
 **"Business is about translating vision and strategy into execution."**  
-
 **"Life is a team sport, and a player who makes the team great is far more valuable than simply a great player."**  
-
 **"If you want to go fast - go alone, if you want to go far - go together."**  
 -- *Brad Smith*
 
@@ -158,9 +151,7 @@
 
 
 **"It is not enough to do your best; you must know what to do, and then do your best."**  
-
 **"Learning is not compulsory... neither is survival."**  
-
 **"Experience by itself teaches nothing…Without theory, experience has no meaning. Without theory, one has no questions to ask. Hence without theory there is no learning."**  
 -- *W. Edwards Deming*
 
