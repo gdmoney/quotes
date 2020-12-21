@@ -93,8 +93,12 @@
 -- *The Godfather (Mario Puzo)*
 
 
-**"Perfect is the enemy of good. Certainty is the enemy of growth."**  
--- *Voltaire + Mark Manson*
+**"Perfect is the enemy of good."**  
+-- *Voltaire*
+
+
+**"Certainty is the enemy of growth."**  
+-- *Mark Manson*
 
 
 **"Skepticism is the virtuous mean between two vices: absolute knowledge and absolute ignorance."**  
