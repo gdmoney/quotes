@@ -1,38 +1,20 @@
-***“Anyone can steer the ship when the sea is calm."***"
-
+***"Anyone can steer the ship when the sea is calm."***"
  - Publilius Syrus
 
-=====
-
 ***"Nothing satisfies the man who is not satisfied with a little."***
-
  - Epicurus
 
-=====
-
-***“Difficulty is a coin which the learned conjure with so as not to reveal the vanity of their studies and which human stupidity is keen to accept in payment.”***
-
+***"Difficulty is a coin which the learned conjure with so as not to reveal the vanity of their studies and which human stupidity is keen to accept in payment."***
  - Michel de Montaigne
 
-=====
-
-***“For every complex problem there is an answer that is clear, simple and wrong.”***
-
+***"For every complex problem there is an answer that is clear, simple and wrong."***
  - H. L. Mencken
 
-=====
-
-***“People do not decide their futures, they decide their habits and their habits decide their futures.”***
-
+***"People do not decide their futures, they decide their habits and their habits decide their futures."***
  - F. M. Alexander
 
-=====
-
 ***"If you don't prioritize your life, someone else will."***
-
  - Greg McKeown (Essentialism)
-
-===== 
 
 ***"The impediment to action advances action. What stands in the way becomes the way."***
 
@@ -44,7 +26,7 @@
 
 ***"In life our first job is this, to divide and distinguish things into two categories: externals I cannot control, but the choices I make with regard to them I do control. Where will I find good and bad? In me, in my choices."***
 
-***“It’s impossible to learn that which you think you already know."***
+***"It’s impossible to learn that which you think you already know."***
 
  - Epictetus
 
@@ -186,7 +168,7 @@
 
 =====
 
-"It took me time to adjust, but I came to realize that my new job was to ask the right questions that empowered our leaders to move forward with greater clarity about the “outcome” we sought. Said more succinctly, be clear about the 'what' and delegate the 'how'."***
+"It took me time to adjust, but I came to realize that my new job was to ask the right questions that empowered our leaders to move forward with greater clarity about the "outcome" we sought. Said more succinctly, be clear about the 'what' and delegate the 'how'."***
 
 ***"Business is about translating vision and strategy into execution."***
 
