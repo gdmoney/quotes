@@ -28,7 +28,6 @@
 
 
 **"In life our first job is this, to divide and distinguish things into two categories: externals I cannot control, but the choices I make with regard to them I do control. Where will I find good and bad? In me, in my choices."**  
-
 **"It’s impossible to learn that which you think you already know."**  
 -- *Epictetus*
 
