@@ -134,7 +134,7 @@
 
 **"Life is a team sport, and a player who makes the team great is far more valuable than simply a great player."**  
 
-**"If you want to go fast - *go alone, if you want to go far - *go together."**  
+**"If you want to go fast - go alone, if you want to go far - go together."**  
 - *Brad Smith*
 
 
