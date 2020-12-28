@@ -1,5 +1,6 @@
 ### Some of my favorite quotes and sayings.
 
+*****
 
 **"Anyone can steer the ship when the sea is calm."**  
 -- *Publilius Syrus*
