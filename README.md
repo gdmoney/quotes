@@ -2,7 +2,7 @@
 
 *****
 
-**"One cannot lead a life that is truly excellent without feeling that one belongs to something greater and more permanent than oneself."**
+**"One cannot lead a life that is truly excellent without feeling that one belongs to something greater and more permanent than oneself."**  
 -- *Mihaly Csikszentmihalyi*
 
 
