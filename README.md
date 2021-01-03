@@ -77,7 +77,7 @@
 
 
 **"The way we do anything is the way we do everything."**  
--- *Unknown*
+-- *Martha Beck*
 
 
 **"Ego is the anesthetic that dulls the pain of stupidity."**  
