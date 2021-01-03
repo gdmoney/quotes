@@ -113,7 +113,7 @@
 
 
 **"Life begins at the end of your comfort zone."**  
--- *Unknown*
+-- *Neale Donald Walsch*
 
 
 **"Blowing out someone else’s candle, doesn’t make yours shine any brighter."**  
