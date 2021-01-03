@@ -94,7 +94,7 @@
 
 
 **"A friend should always underestimate your virtues and the enemy overestimate your faults."**  
--- *The Godfather (Mario Puzo)*
+-- *Mario Puzo (The Godfather)*
 
 
 **"Perfect is the enemy of good."**  
