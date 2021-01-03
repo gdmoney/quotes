@@ -52,6 +52,7 @@
 -- *Scott Adams*
 
 
+**"If I had 20 days to solve a problem, I would take 19 days to define it."**  
 **"If you can't explain it simply, you don't understand it well enough."**  
 -- *Albert Einstein*
 
@@ -90,10 +91,6 @@
 
 **"The mass of men lead lives of quiet desperation."**  
 -- *Henry David Thoreau*
-
-
-**"If I had 20 days to solve a problem, I would take 19 days to define it."**  
--- *Albert Einstein*
 
 
 **"A friend should always underestimate your virtues and the enemy overestimate your faults."**  
