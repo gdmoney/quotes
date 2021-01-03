@@ -53,7 +53,7 @@
 
 
 **"If you can't explain it simply, you don't understand it well enough."**  
--- *Anonymous*
+-- *Albert Einstein*
 
 
 **"We are what we repeatedly do. Excellence, then, is not an act, but a habit."**  
