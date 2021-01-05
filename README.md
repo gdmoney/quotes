@@ -124,6 +124,7 @@
 **"All cruelty springs from weakness."**    
 **"Luck is what happens when preparation meets opportunity."**  
 **"There is nothing the busy man is less busied with than living."**  
+**"The greatest remedy for anger is delay."**  
 -- *Seneca*
 
 
