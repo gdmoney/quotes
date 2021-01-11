@@ -2,56 +2,56 @@
 
 
 **"If the answer isn’t a definite YES, then it should be a NO."**  
--- *asdf*
+-- *Greg McKeown (Essentialism)*
 
 
-**"Never judge a book by its cover."**  
--- *asdf*
+**"Don't judge a book by its cover."**  
+-- *proverb*
 
 
 **"If you STAY ready, you won’t have to GET ready."**  
--- *asdf*
+-- *proverb*
 
 
 **"If you’re going to do something, do it well."**  
--- *adsf*
+-- *Charles Manson*
 
 
 **"Treat others the way you want to be treated."**  
--- *asdf*
+-- *The Golden Rule*
 
 
 **"Leave it better than you found it."**  
--- *asdf*
+-- *Robert Baden-Powell*
 
 
 **"Whether you think you CAN or think you CAN’T – you’re right."**  
--- *asdf*
+-- *Henry Ford*
 
 
-**"Wrong is WRONG even if everyone is doing it. Right is RIGHT even if no one is doing it."**  
--- *adsf*
+**"Right is right, even if everyone is against it, and wrong is wrong, even if everyone is for it.."**  
+-- *William Penn*
 
 
-**"Always choose the harder RIGHT instead of the easier WRONG."**  
--- *asdf*
+**"Choose the harder RIGHT instead of the easier WRONG."**  
+-- *Thomas Monson*
 
 
 **"Blowing out someone else’s candle, won’t make yours shine any brighter."**  
--- *asdf*
+-- *proverb*
 
 
 **"It’s better to aim HIGH and miss than to aim LOW and hit."**  
--- *asdf*
+-- *Les Brown*
 
 
-**"It’s better to be an hour early than a minute late."**  
--- *asdf*
+**"Better three hours too soon than a minute too late."**  
+-- *William Shakespeare*
 
 
 **"Nothing worth having was ever achieved without effort."**  
--- *asdf*
+-- *Theodore Roosevelt*
 
 
 **"Rudeness is a weak man’s imitation of strength."**  
--- *asdf*
+-- *Edmund Burke*

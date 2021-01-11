@@ -48,7 +48,7 @@
 
 
 **"The best time to plant a tree was 20 years ago. The second best time is now."**  
--- *Proverb*
+-- *proverb*
 
 
 **"Happiness has more to do with where you are heading than where you are."**  
@@ -114,10 +114,6 @@
 
 **"Life begins at the end of your comfort zone."**  
 -- *Neale Donald Walsch*
-
-
-**"Blowing out someone else’s candle, doesn’t make yours shine any brighter."**  
--- *Unknown*
 
 
 **"Nothing in the world is worth having or worth doing unless it means effort, pain, difficulty… I have never in my life envied a human being who led an easy life. I have envied a great many people who led difficult lives and led them well."**  
