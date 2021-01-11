@@ -1,6 +1,9 @@
 ### Some of my favorite quotes and sayings.
 
 *****
+**[Quotes for Tina and Luka](/quotes-tina-luka.md)**
+
+*****
 
 **"One cannot lead a life that is truly excellent without feeling that one belongs to something greater and more permanent than oneself."**  
 -- *Mihaly Csikszentmihalyi*
