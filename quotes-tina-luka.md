@@ -29,7 +29,7 @@
 -- *Henry Ford*
 
 
-**"Right is right, even if everyone is against it, and wrong is wrong, even if everyone is for it.."**  
+**"Right is right, even if everyone is against it, and wrong is wrong, even if everyone is for it."**  
 -- *William Penn*
 
 
