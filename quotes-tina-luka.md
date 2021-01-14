@@ -1,6 +1,10 @@
 ## Quotes for Tina and Luka
 
 
+**"Rudeness is a weak man’s imitation of strength."**  
+-- *Edmund Burke*
+
+
 **"If the answer isn’t a definite YES, then it should be a NO."**  
 -- *Greg McKeown (Essentialism)*
 
@@ -51,7 +55,3 @@
 
 **"Nothing worth having was ever achieved without effort."**  
 -- *Theodore Roosevelt*
-
-
-**"Rudeness is a weak man’s imitation of strength."**  
--- *Edmund Burke*
