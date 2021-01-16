@@ -5,6 +5,10 @@
 
 *****
 
+**"No man ever steps in the same river twice, for it's not the same river and he's not the same man."**
+-- *Heraclitus*
+
+
 **"One cannot lead a life that is truly excellent without feeling that one belongs to something greater and more permanent than oneself."**  
 -- *Mihaly Csikszentmihalyi*
 
@@ -40,6 +44,7 @@
 
 **"In life our first job is this, to divide and distinguish things into two categories: externals I cannot control, but the choices I make with regard to them I do control. Where will I find good and bad? In me, in my choices."**  
 **"It’s impossible to learn that which you think you already know."**  
+**"Wealth consists not in having great possessions, but in having few wants."**
 -- *Epictetus*
 
 
