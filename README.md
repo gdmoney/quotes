@@ -77,7 +77,7 @@
 -- *Louis Pasteur*
 
 
-**"Life is simple. Everything happens for you, not to you."**  
+**"Life is simple. Everything happens *for* you, not *to* you."**  
 -- *Byron Katie*
 
 
