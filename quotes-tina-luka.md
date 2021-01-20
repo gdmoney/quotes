@@ -5,7 +5,7 @@
 -- *Edmund Burke*
 
 
-**"If the answer isn’t a definite YES, then it should be a NO."**  
+**"If the answer isn’t a definite *yes*, then it should be a *no*."**  
 -- *Greg McKeown (Essentialism)*
 
 
@@ -13,7 +13,7 @@
 -- *proverb*
 
 
-**"If you STAY ready, you won’t have to GET ready."**  
+**"If you *stay* ready, you won’t have to *get* ready."**  
 -- *proverb*
 
 
@@ -29,7 +29,7 @@
 -- *Robert Baden-Powell*
 
 
-**"Whether you think you CAN or think you CAN’T – you’re right."**  
+**"Whether you think you *can* or think you *can't* – you’re right."**  
 -- *Henry Ford*
 
 
@@ -37,7 +37,7 @@
 -- *William Penn*
 
 
-**"Choose the harder RIGHT instead of the easier WRONG."**  
+**"Choose the harder *right* instead of the easier *wrong*."**  
 -- *Thomas Monson*
 
 
@@ -45,7 +45,7 @@
 -- *proverb*
 
 
-**"It’s better to aim HIGH and miss than to aim LOW and hit."**  
+**"It’s better to aim *high* and miss than to aim *low* and hit."**  
 -- *Les Brown*
 
 
