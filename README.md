@@ -5,6 +5,10 @@
 
 *****
 
+**"Children have never been very good at listening to their elders, but they have never failed to imitate them."**
+-- *James Baldwin*
+
+
 **"No man ever steps in the same river twice, for it's not the same river and he's not the same man."**  
 -- *Heraclitus*
 
