@@ -1,7 +1,8 @@
 ### Some of my favorite quotes and sayings.
 
 *****
-**[Quotes for Tina and Luka](/quotes-tina-luka.md)**
+**[Quotes for Tina and Luka](/quotes-tina-luka.md)**  
+
 *****
 
 **"Children have never been very good at listening to their elders, but they have never failed to imitate them."**  
