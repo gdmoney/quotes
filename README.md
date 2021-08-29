@@ -151,7 +151,7 @@
 
 
 **"If you want to go fast - go alone, if you want to go far - go together."**  
--- *Proverb*
+-- *proverb*
 
 
 **"Your business is nothing more than the collective energy and efforts of the people working with and for you."**  
