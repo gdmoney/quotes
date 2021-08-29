@@ -5,7 +5,7 @@
 
 *****
 
-**"Most people are not just comfortable in their ignorance, but hostile to anyone who points it out."**
+**"Most people are not just comfortable in their ignorance, but hostile to anyone who points it out."**  
 -- Plato
 
 
