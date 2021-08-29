@@ -5,6 +5,10 @@
 
 *****
 
+**"Most people are not just comfortable in their ignorance, but hostile to anyone who points it out."**
+-- Plato
+
+
 **"Children have never been very good at listening to their elders, but they have never failed to imitate them."**  
 -- *James Baldwin*
 
