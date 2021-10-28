@@ -5,6 +5,10 @@
 
 *****
 
+**"The willingness to accept responsibility for one's own life is the source from which self-respect springs."**
+-- Joan Didion
+
+
 **"Children have never been very good at listening to their elders, but they have never failed to imitate them."**  
 -- *James Baldwin*
 
