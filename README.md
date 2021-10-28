@@ -147,8 +147,11 @@
 **"It took me time to adjust, but I came to realize that my new job was to ask the right questions that empowered our leaders to move forward with greater clarity about the outcome we sought. Said more succinctly, be clear about the 'what' and delegate the 'how'."**  
 **"Business is about translating vision and strategy into execution."**  
 **"Life is a team sport, and a player who makes the team great is far more valuable than simply a great player."**  
-**"If you want to go fast - go alone, if you want to go far - go together."**  
 -- *Brad Smith*
+
+
+**"If you want to go fast - go alone, if you want to go far - go together."**  
+-- *proverb*
 
 
 **"Your business is nothing more than the collective energy and efforts of the people working with and for you."**  
