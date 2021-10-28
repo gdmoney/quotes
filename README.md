@@ -5,24 +5,19 @@
 
 *****
 
-<<<<<<< HEAD
-- **"The willingness to accept responsibility for one's own life is the source from which self-respect springs."**  
--- Joan Didion
-=======
 **"The willingness to accept responsibility for one's own life is the source from which self-respect springs."**  
--- *Joan Didion*
->>>>>>> ba5d808b583207ef5a0b2b52d1d75d5cf613fa6a
+-- Joan Didion
 
 
-- **"Children have never been very good at listening to their elders, but they have never failed to imitate them."**  
+**"Children have never been very good at listening to their elders, but they have never failed to imitate them."**  
 -- *James Baldwin*
 
 
-- **"No man ever steps in the same river twice, for it's not the same river and he's not the same man."**  
+**"No man ever steps in the same river twice, for it's not the same river and he's not the same man."**  
 -- *Heraclitus*
 
 
-- **"One cannot lead a life that is truly excellent without feeling that one belongs to something greater and more permanent than oneself."**  
+**"One cannot lead a life that is truly excellent without feeling that one belongs to something greater and more permanent than oneself."**  
 -- *Mihaly Csikszentmihalyi*
 
 
