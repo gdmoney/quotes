@@ -5,7 +5,7 @@
 
 *****
 
-**"The willingness to accept responsibility for one's own life is the source from which self-respect springs."**
+**"The willingness to accept responsibility for one's own life is the source from which self-respect springs."**  
 -- Joan Didion
 
 
