@@ -5,7 +5,7 @@
 
 *****
 
-**"While seeking revenge, dig two graves - one for yourself."**
+**"While seeking revenge, dig two graves - one for yourself."**  
 -- *Douglas Horton*
 
 
