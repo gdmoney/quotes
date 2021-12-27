@@ -5,7 +5,7 @@
 
 *****
 
-**"Any system of education which does not inculcate moral values simply furnishes the intellectual equipment whereby men and women can better satisfy their pride, greed, and lust."**
+**"Any system of education which does not inculcate moral values simply furnishes the intellectual equipment whereby men and women can better satisfy their pride, greed, and lust."**  
 -- *Adm. Hyman G. Rickover*
 
 
