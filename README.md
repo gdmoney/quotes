@@ -41,7 +41,7 @@
 -- *Michel de Montaigne*
 
 
-**"For every complex problem there is an answer that is clear, simple and wrong."**  
+**"For every complex problem there is an answer that is clear, simple, and wrong."**  
 -- *H.L. Mencken*
 
 
