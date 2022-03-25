@@ -5,6 +5,10 @@
 
 *****
 
+**"Money is a horrid thing to follow, but a charming thing to meet."**  
+-- *Henry James*
+
+
 **"Any system of education which does not inculcate moral values simply furnishes the intellectual equipment whereby men and women can better satisfy their pride, greed, and lust."**  
 -- *Adm. Hyman G. Rickover*
 
