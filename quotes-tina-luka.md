@@ -1,6 +1,10 @@
 ## Quotes for Tina and Luka
 
 
+**"No one can make you feel inferior without your consent."**
+-- *Eleanor Roosevelt*
+
+
 **"Rudeness is a weak man’s imitation of strength."**  
 -- *Edmund Burke*
 
