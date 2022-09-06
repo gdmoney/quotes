@@ -5,6 +5,10 @@
 
 *****
 
+**"If you’re thinking without writing, you only think you’re thinking."**  
+-- *Leslie Lamport*
+
+
 **"Being busy is a form of laziness—lazy thinking and indiscriminate action. Being busy is most often used as a guise for avoiding the few critically important but uncomfortable actions."**  
 -- *Tim Ferriss*
 
