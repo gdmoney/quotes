@@ -9,7 +9,7 @@
 -- *Leslie Lamport*
 
 
-**"Being busy is a form of laziness—lazy thinking and indiscriminate action. Being busy is most often used as a guise for avoiding the few critically important but uncomfortable actions."**  
+**"Being busy is a form of laziness - lazy thinking and indiscriminate action. Being busy is most often used as a guise for avoiding the few critically important but uncomfortable actions."**  
 -- *Tim Ferriss*
 
 
