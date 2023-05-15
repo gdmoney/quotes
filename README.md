@@ -5,6 +5,10 @@
 
 *****
 
+**"The greatest gifts you can give your children are the roots of responsibility and the wings of independence."**  
+-- *Dennis Waitley*
+
+
 **"If you’re thinking without writing, you only think you’re thinking."**  
 -- *Leslie Lamport*
 
