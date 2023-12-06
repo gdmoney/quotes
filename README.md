@@ -5,6 +5,10 @@
 
 *****
 
+**"There are three musts that hold us back: I must do well. You must treat me well. And the world must be easy."**  
+-- *Albert Ellis*
+
+
 **"The greatest gifts you can give your children are the roots of responsibility and the wings of independence."**  
 -- *Dennis Waitley*
 
