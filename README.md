@@ -5,6 +5,10 @@
 
 *****
 
+**"On one level, wisdom is nothing more profound than an ability to follow one’s own advice."**  
+-- *Sam Harris*
+
+
 **"There are three musts that hold us back: I must do well. You must treat me well. And the world must be easy."**  
 -- *Albert Ellis*
 
