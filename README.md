@@ -5,6 +5,10 @@
 
 *****
 
+**"Attention is the rarest and purest form of generosity."**  
+-- *Simone Weil*
+
+
 **"On one level, wisdom is nothing more profound than an ability to follow one’s own advice."**  
 -- *Sam Harris*
 
