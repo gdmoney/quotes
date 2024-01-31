@@ -5,6 +5,10 @@
 
 *****
 
+**"Not doing something that isn’t worth doing is a wonderful way to spend your time."**  
+-- *Jason Fried*
+
+
 **"Attention is the rarest and purest form of generosity."**  
 -- *Simone Weil*
 
