@@ -5,6 +5,10 @@
 
 *****
 
+**"The right time is any time that one is still so lucky as to have."**  
+-- *Henry James*
+
+
 **"Not doing something that isn’t worth doing is a wonderful way to spend your time."**  
 -- *Jason Fried*
 
