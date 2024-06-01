@@ -5,6 +5,10 @@
 
 *****
 
+**"There is no such thing as absolute certainty, but there is assurance sufficient for the purposes of human life."**  
+-- *John Stuart Mill*
+
+
 **"The right time is any time that one is still so lucky as to have."**  
 -- *Henry James*
 
