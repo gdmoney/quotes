@@ -5,6 +5,10 @@
 
 *****
 
+**"It's so simple, yet makes such a difference. Pretend that every single person you meet has a sign around his or her neck that says, 'Make me feel important'."** 
+-- *Mary Kay Ash*
+
+
 **"There is no such thing as absolute certainty, but there is assurance sufficient for the purposes of human life."**  
 -- *John Stuart Mill*
 
