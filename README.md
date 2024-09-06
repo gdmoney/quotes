@@ -5,15 +5,15 @@
 
 *****
 
-**"Perfection is achieved, not when there is nothing more to add, but when there is nothing left to take away."**
+**"Perfection is achieved, not when there is nothing more to add, but when there is nothing left to take away."**  
 -- *Antoine de Saint-Exupéry*
 
 
-**"Any intelligent fool can make things bigger, more complex, and more violent. It takes a touch of genius — and a lot of courage — to move in the opposite direction."**
+**"Any intelligent fool can make things bigger, more complex, and more violent. It takes a touch of genius — and a lot of courage — to move in the opposite direction."**  
 -- *E.F. Schumacher*
 
 
-**"It's so simple, yet makes such a difference. Pretend that every single person you meet has a sign around his or her neck that says, 'Make me feel important'."** 
+**"It's so simple, yet makes such a difference. Pretend that every single person you meet has a sign around his or her neck that says, 'Make me feel important'."**  
 -- *Mary Kay Ash*
 
 
