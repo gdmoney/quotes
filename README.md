@@ -105,7 +105,7 @@
 -- *Greg McKeown (Essentialism)*
 
 
-**"There is nothing either good or bad, but thinking makes it so.**"
+**"There is nothing either good or bad, but thinking makes it so.**"  
 -- *Shakespeare’s Hamlet*
 
 
