@@ -105,6 +105,10 @@
 -- *Greg McKeown (Essentialism)*
 
 
+**"There is nothing either good or bad, but thinking makes it so.**"
+-- *Shakespeare’s Hamlet*
+
+
 **"The impediment to action advances action. What stands in the way becomes the way."**  
 **"Choose not to be harmed - and you won't feel harmed. Don't feel harmed - and you haven't been."**  
 -- *Marcus Aurelius*
