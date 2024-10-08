@@ -1,6 +1,10 @@
 ## Quotes for Tina and Luka
 
 
+**"The best way to have a good idea is to have lots of ideas."**  
+-- Linus Pauling
+
+
 **"No one can make you feel inferior without your consent."**  
 -- *Eleanor Roosevelt*
 
