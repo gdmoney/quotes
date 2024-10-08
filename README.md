@@ -5,6 +5,10 @@
 
 *****
 
+**"Our lives are not our own. We are bound to others, past and present, and by each crime and every kidness, we birth our future."**  
+-- *David Mitchell*
+
+
 **"Perfection is achieved, not when there is nothing more to add, but when there is nothing left to take away."**  
 -- *Antoine de Saint-Exupéry*
 
