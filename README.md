@@ -5,6 +5,10 @@
 
 *****
 
+**"I think and think and think. I've thought myself out of happiness one million times, but never once into it."**  
+-- *Jonathan Safran Foer*
+
+
 **"Our lives are not our own. We are bound to others, past and present, and by each crime and every kidness, we birth our future."**  
 -- *David Mitchell*
 
