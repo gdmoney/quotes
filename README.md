@@ -1,4 +1,4 @@
-### Some of my favorite quotes and sayings.
+## Some of my favorite quotes and sayings.
 
 *****
 **[Quotes for Tina and Luka](/quotes-tina-luka.md)**  
