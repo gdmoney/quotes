@@ -5,31 +5,31 @@
 
 *****
 
-**"Be kind, for everyone is fighting a hard battle."**
+**"Be kind, for everyone is fighting a hard battle."**  
 -- *John Watson*
 
 
-**"Sometimes your joyh is the source of your smile, but sometimes your smile can be the source of your joy."**
+**"Sometimes your joyh is the source of your smile, but sometimes your smile can be the source of your joy."**  
 -- *Thich Nhat Hanh*
 
 
-**"So much has been given to me I have not the time to ponder that which has been denied."**
+**"So much has been given to me I have not the time to ponder that which has been denied."**  
 -- *Helen Keller*
 
 
-**"The task we must set for ourselves is not to feel secure, but to be able to tolerate insecurity."**
+**"The task we must set for ourselves is not to feel secure, but to be able to tolerate insecurity."**  
 -- *Erich Fromm*
 
 
-**"That it will never come again is what makes life so sweet."**
+**"That it will never come again is what makes life so sweet."**  
 -- *Emily Dickinson*
 
 
-**"The real truth, that dare not speak itself, is that no one is in control. Absolutely no one."**
+**"The real truth, that dare not speak itself, is that no one is in control. Absolutely no one."**  
 -- *Terence McKenna*
 
 
-**"Learn what is to be taken seriously and laugh at the rest."**
+**"Learn what is to be taken seriously and laugh at the rest."**  
 -- *Hermann Hesse*
 
 
