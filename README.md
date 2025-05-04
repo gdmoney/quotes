@@ -5,6 +5,10 @@
 
 *****
 
+**"When the debate is lost, slander becomes the tool of the loser."**
+-- *Anonymous*
+
+
 **"Be kind, for everyone is fighting a hard battle."**  
 -- *John Watson*
 
