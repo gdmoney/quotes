@@ -5,11 +5,11 @@
 
 *****
 
-**"No one would remember the Good Samaritan if he'd only had good intentions; he had money as well."**
+**"No one would remember the Good Samaritan if he'd only had good intentions; he had money as well."**  
 -- *Margaret Thatcher*
 
 
-**"When the debate is lost, slander becomes the tool of the loser."**
+**"When the debate is lost, slander becomes the tool of the loser."**  
 -- *Anonymous*
 
 
