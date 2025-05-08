@@ -21,7 +21,7 @@
 -- *Thich Nhat Hanh*
 
 
-**"So much has been given to me I have not the time to ponder that which has been denied."**  
+**"So much has been given to me, I have not the time to ponder that which has been denied."**  
 -- *Helen Keller*
 
 
