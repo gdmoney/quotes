@@ -5,6 +5,10 @@
 
 *****
 
+**"Between what is said and not meant, and what is meant and not said, most of love is lost."**  
+-- *Kahlil Gibran*
+
+
 **"No one would remember the Good Samaritan if he'd only had good intentions; he had money as well."**  
 -- *Margaret Thatcher*
 
